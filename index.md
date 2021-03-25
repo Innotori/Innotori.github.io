@@ -1,3 +1,9 @@
+## 袁浩乐发病实录
+[全程回放-Acfun1080p60] (https://www.acfun.cn/v/ac24563298)
+[全程回放-pilipili全损] (https://www.bilibili.com/video/BV1DK4y1n7d2)
+[狗群友讨论纪录及当事人事后反应](https://Innotori.github.io/袁浩乐发病讨论实录.txt)
+
+
 ## Welcome to GitHub Pages
 
 You can use the [editor on GitHub](https://github.com/Innotori/Innotori.github.io/edit/main/index.md) to maintain and preview the content for your website in Markdown files.
